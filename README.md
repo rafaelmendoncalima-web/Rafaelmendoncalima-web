@@ -7,7 +7,7 @@
 
 
 
-![](https://media.tenor.com/SeOLYx2IlCIAAAAm/war-robots-strider-pet.webp)
+![](https://media.tenor.com/2VpV37Vtt1gAAAAM/youre-banned-banned.gif)
 
 ![](https://media.tenor.com/_WfulB4cTsUAAAAM/no.gif)
 

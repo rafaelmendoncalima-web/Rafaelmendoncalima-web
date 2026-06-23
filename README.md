@@ -1,14 +1,14 @@
 ## Olá! eu me chamo Rafael🤠
 - Eu gosto de elétrica⚛️
 - Amo carros super esportivos, tipo koenigsegg e apollo. Mas principalmente as bmw
-➖➖⬛⬛⬛⬛➖➖
-➖⬛🟦🟦⬜⬜⬛➖
-⬛🟦🟦🟦⬜⬜⬜⬛
-⬛🟦🟦🟦⬜⬜⬜⬛
-⬛⬜⬜⬜🟦🟦🟦⬛
-⬛⬜⬜⬜🟦🟦🟦⬛
-➖⬛⬜⬜🟦🟦⬛➖
-➖➖⬛⬛⬛⬛➖➖
+- ➖➖⬛⬛⬛⬛➖➖
+- ➖⬛🟦🟦⬜⬜⬛➖
+- ⬛🟦🟦🟦⬜⬜⬜⬛
+- ⬛🟦🟦🟦⬜⬜⬜⬛
+- ⬛⬜⬜⬜🟦🟦🟦⬛
+- ⬛⬜⬜⬜🟦🟦🟦⬛
+- ➖⬛⬜⬜🟦🟦⬛➖
+- ➖➖⬛⬛⬛⬛➖➖
 - Eu gosto da cor verde🟢
 - Meu jogo favorito é war robots⚙️
 - E amo quimica 🧑‍🔬

@@ -1,4 +1,4 @@
-## Olá! eu me chamo Rafael🤠
+## Olá! meu nome é Rafael🤠
 - Eu gosto de elétrica⚛️
 - Amo carros super esportivos, tipo koenigsegg e apollo. Mas principalmente as bmw 🔵⚪
 - Eu gosto da cor verde🟢
